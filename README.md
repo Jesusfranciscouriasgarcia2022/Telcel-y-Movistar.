@@ -1,0 +1,2 @@
+# Telcel-y-Movistar.
+Te invito a conocer la mejor telefonia de celular de la República mexicana en México, 😄🤫🤑🙏🍀🌹💖😆😉😆😇🤑🤑😄 y forma parte de una línea telefónica celular puedes contactarme para darte ubicación de excelentes equipos celulares de tecnología avanzada en el mundo entero. Atentamente: Jesús Francisco Urias García, y vamper424, muchas gracias por su tiempo y atención. Correo electrónico: uriasgarciajesusfrancisco810@gmail.com 
